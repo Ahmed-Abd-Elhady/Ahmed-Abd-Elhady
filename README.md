@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi i'm Ahmed :wave: , <br>:dizzy: About Me:<br>i'm in AI high school ,<br>:telescope: I’m looking for anything hard to study like Mathematical equations and difficult scientific theories , if you want anything call me Discord : Konafa#6806<br><br>
+Hi i'm Ahmed :wave: , <br>i'm in AI high school ,<br>:telescope: I’m looking for anything hard to study like Mathematical equations and difficult scientific theories , if you want anything call me Discord : Konafa#6806<br><br>
 
 
 ## 🌐 Socials:
